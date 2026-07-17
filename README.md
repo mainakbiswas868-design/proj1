@@ -1,0 +1,1 @@
+dekhe nebo toke
